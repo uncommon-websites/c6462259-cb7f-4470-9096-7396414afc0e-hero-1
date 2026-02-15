@@ -1,0 +1,2 @@
+# c6462259-cb7f-4470-9096-7396414afc0e-hero-1
+Hero section variant 1 for c6462259-cb7f-4470-9096-7396414afc0e
